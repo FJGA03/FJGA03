@@ -12,3 +12,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: beer
 - 😄 Pronouns: beer
 - ⚡ Fun fact: beer
+- Takamura Mamoru mide 1,90 cm de altura
